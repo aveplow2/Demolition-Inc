@@ -216,3 +216,6 @@ Demolition Inc. is available as a **full free version** with all features and up
 - 💬 **[Community](https://www.softyne.com/about-us/)**
 
 Ready to unleash chaos? **Download Demolition Inc. free today and start your demolition adventure!**
+
+---
+**Last updated:** 2026-09-13 19:02:14 UTC
